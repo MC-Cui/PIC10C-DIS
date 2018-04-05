@@ -1,3 +1,5 @@
 ## discusion 2
 
-i am completely lost..... 
+now i have a clue. 
+ gagaulala
+wawawa
